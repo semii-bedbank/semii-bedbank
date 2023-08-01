@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Semi Ravitisai
+- 👋 Hi, I’m Semii
 - 👀 I’m interested in building games
 - 🌱 I’m currently learning everything programming-related
 - 📫 How to reach me zamceaser@gmail.com || semi@bedbank.com
